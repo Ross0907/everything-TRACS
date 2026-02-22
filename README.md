@@ -1,4 +1,4 @@
-Presentation : [PDF](https://github.com/user-attachments/files/25463411/SMART.INDIA.HACKATHON.2025.FINAL.FINAL.14.-1.pdf)
+Presentation : [PDF](https://github.com/Ross0907/everything-TRACS/blob/main/SMART%20INDIA%20HACKATHON%202025%20FINAL%20FINAL%20(14).pdf)
 
 Demo : 
 
